@@ -1,0 +1,1 @@
+Energy produced by power plant
